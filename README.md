@@ -12,5 +12,5 @@ I'm aware that this will open me up to being a target but in this day and age, w
 
 I act as founder of this organization but I do not wish to lay claim to anything other than the desire to present an organizational template that helps others.
 
-## tl;dr
-This is how I choose to love my fellow human.
+## TL;DR
+I choose to love my fellow human by founding Y.O.S.H. and creating for others.
